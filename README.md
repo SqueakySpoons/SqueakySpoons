@@ -1,4 +1,4 @@
-## Hai, I'm Spoons!!
+## Hai, I'm Spoons!! This page is still a WIP 
 
 <details>
   <summary>DNI:</summary> 
