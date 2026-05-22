@@ -31,6 +31,6 @@ Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
 - I block freely, and my identity is not yours to label. If you attempt to tell me certain labels aren't valid, I will simply ignore and hide you. Copying, covering, and other basic things will also result in being blocked. Just be a nice person.
 
 - Do not copy any of my pones, and ask for permission before taking any inspiration.
-</details>
 
-- I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I'm just tired.
+- I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I am simply tired.
+</details>
