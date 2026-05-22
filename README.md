@@ -3,6 +3,7 @@
 [![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=Viewers%3A&color=fe7d37&labelColor=b0200b)](https://hits.sh/github.com/SqueakySpoons/)
 
 Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
+
 If you are on my friends list, please don't be offended if I don't interact much, I often don't check who is online, and I tend to generally avoid starting conversations. I am more than happy to chat if you interact first, though !!
 
 <details>
