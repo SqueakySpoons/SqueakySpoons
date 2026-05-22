@@ -1,7 +1,7 @@
 ## Hai, I'm Spoons!! This page is still a WIP so it's not pretty yet </3
 
 Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
-[![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?view=today-total&label=viewers&color=b00b0b&labelColor=e9fe98)](https://hits.sh/github.com/RadioheadLover/hits/)
+
 
 <details>
 <summary>DNI:</summary> 
