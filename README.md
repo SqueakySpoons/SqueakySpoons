@@ -2,6 +2,7 @@
 
 Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
 
+[![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=Viewers%3A&color=fe7d37&labelColor=b0200b)](https://hits.sh/github.com/SqueakySpoons/)
 
 <details>
 <summary>DNI:</summary> 
