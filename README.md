@@ -18,11 +18,13 @@ Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
 
 - Anti-alterhumans
 
-- Any Other harmful groups
+- Any other harmful groups
 
 </details>
 <details>
 <summary>BYI:</summary>
+
+- Follow your own DNI (duh.)
   
  - I am neurodivergent and can be quite slow and misread messages, please be patient and let me know if I seem to have not read your message correctly. Tone tags are appreciated.
 
@@ -30,3 +32,5 @@ Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
 
 - Do not copy any of my pones, and ask for permission before taking any inspiration.
 </details>
+
+- I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I'm just tired.
