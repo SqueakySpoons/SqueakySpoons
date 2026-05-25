@@ -1,4 +1,3 @@
-<img src="https://i.pinimg.com/736x/3f/23/cb/3f23cb23118b1cfef9a5e744e2f9fd70.jpg" alt="This may contain: a decorative border with flowers and leaves"/>
 ## Hai, I'm Spoons!! This page is still a WIP so it's not pretty yet </3
 
 [![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=Viewers%3A&color=fe7d37&labelColor=b0200b)](https://hits.sh/github.com/SqueakySpoons/)
