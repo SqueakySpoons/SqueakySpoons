@@ -35,6 +35,8 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - I block freely, and my identity is not yours to label. If you attempt to tell me certain labels aren't valid, I will simply ignore and hide you. Copying, covering, and other basic things will also result in being blocked. Just be a nice person.
 
+- If you are a close friend, I may spam you or curse/use crude language while talking to you. If you would be uncomfortable if I did so, please let me know and I will take it into consideration.
+
 - Do not copy any of my pones, and ask for permission before taking any inspiration.
 
 - I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I am simply tired.
