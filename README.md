@@ -44,7 +44,10 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 <details>
 <summary>FRIENDS:</summary> 
-@pizzadotdoggo
   
-@Overrated-reality
+- [@pizzadotdoggo](https://github.com/pizzadotdoggo)
+  
+- [@Overrated-reality](https://github.com/Overrated-reality)
+
+- [@stupid-saint](https://github.com/stupid-saint)
 </details>
