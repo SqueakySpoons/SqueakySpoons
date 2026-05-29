@@ -41,3 +41,10 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I am simply tired.
 </details>
+
+<details>
+<summary>FRIENDS:</summary> 
+@pizzadotdoggo
+  
+@Overrated-reality
+</details>
