@@ -4,7 +4,7 @@
 
 Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
 
-If you are on my friends list, please don't be offended if I don't interact much, I often don't check who is online, and I tend to generally avoid starting conversations. I am more than happy to chat if you interact first, though !!
+If you are on my friends list, please don't be offended if I don't interact much, I often don't check who is online, and I tend to generally avoid starting conversations, even with people I am closest with. I am more than happy to chat if you interact first, though !!
 
 <details>
 <summary>DNI:</summary> 
