@@ -4,7 +4,8 @@
 
 [![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=%E2%9B%A7Viewers&color=9485e4&labelColor=530c8c)](https://hits.sh/github.com/SqueakySpoons/)
 
-Usually offtab alot, easiest way to interact is to whisper if I'm not active!!
+Pfp is not my art, I found it on pinterest aaaa
+This is mostly for Ponytown, but most things on here are applicable to discord too.
 
 If you are on my friends list, please don't be offended if I don't interact much, I often don't check who is online, and I tend to generally avoid starting conversations, even with people I am closest with. I am more than happy to chat if you interact first, though !!
 
