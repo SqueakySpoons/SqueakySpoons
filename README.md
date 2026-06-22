@@ -27,7 +27,7 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - Anti-alterhumans
 
-- Darkshippers thin ice, if we're already friends it's fine
+- Darkshippers thin ice, if we're already friends then this doesn't apply to you
 
 </details>
 <details>
