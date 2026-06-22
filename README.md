@@ -29,7 +29,7 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - Darkshippers thin ice, if we're already friends it's fine
 
-- Anyone who associates with any other groups that may be deemed harmful, thin ice
+- Anyone who associates with any other groups that may be deemed harmful or controversial, thin ice
 
 </details>
 <details>
