@@ -27,7 +27,9 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - Anti-alterhumans
 
-- Any other harmful groups
+- Darkshippers thin ice, if we're already friends it's fine
+
+- Anyone who associates with any other groups that may be deemed harmful, thin ice
 
 </details>
 <details>
