@@ -29,7 +29,9 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - Darkshippers thin ice, if we're already friends then this doesn't apply to you
 
-- Radqueers 
+- Radqueers
+
+- Xenosatanists
 
 </details>
 <details>
