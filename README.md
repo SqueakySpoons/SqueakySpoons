@@ -1,7 +1,7 @@
-## Hai, I'm Spoons!! This page is still a WIP so it's not pretty yet </3
+## Hai, I'm Spoons!! This page is still a WIP so it's not pretty yet :p 
 
-
-[![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=%E2%9B%A7Viewers&color=9485e4&labelColor=530c8c)](https://hits.sh/github.com/SqueakySpoons/)
+[![Hits](https://hits.sh/github.com/SqueakySpoons.svg)](https://hits.sh/github.com/SqueakySpoons/)
+↜ This is being evil rn, ignore it </3
 
 Pfp is not my art, I found it on pinterest aaaa
 
