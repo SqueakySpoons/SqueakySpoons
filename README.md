@@ -1,5 +1,4 @@
 ## Hai, I'm Spoons!! This page is still a WIP so it's not pretty yet </3
-✦　　　.　　.　　　✦　　 *　　 ˚   .　　.⋆★⋆.　　.   ˚　　 *　　 ✦　　　.　　.　　　✦
 
 
 [![Hits](https://hits.sh/github.com/SqueakySpoons.svg?view=today-total&label=%E2%9B%A7Viewers&color=9485e4&labelColor=530c8c)](https://hits.sh/github.com/SqueakySpoons/)
@@ -47,11 +46,11 @@ If you are on my friends list, please don't be offended if I don't interact much
 
 - Do not copy any of my pones, and ask for permission before taking any inspiration.
 
-- I generally try not to respond in a 'dry' way, but it's getting difficult. If I do end up responding like that, don't take it personally, I am simply tired.
+- I typically don't friend people I haven't interacted with yet, sometimes I accept friend requests to be 'polite', but I often unfriend these later. If this happens to you, please know it's not personal, I simply prefer my friend list to have actual people I interact with added.
 </details>
 
 <details>
-<summary>FRIENDS:</summary> 
+<summary>E-KITTENS/FRIENDS:</summary> 
   
 - [@pizzadotdoggo](https://github.com/pizzadotdoggo)
   
