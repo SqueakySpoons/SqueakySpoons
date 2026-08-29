@@ -55,5 +55,4 @@ If you are on my friends list, please don't be offended if I don't interact much
   
 - [@Overrated-reality](https://github.com/Overrated-reality)
 
-- [@beetle-brain](https://github.com/beetle-brain)
 </details>
